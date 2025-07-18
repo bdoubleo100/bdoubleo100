@@ -12,4 +12,3 @@ hallo hi heelloooo!!! im pufferfizh, or fizh, oorrr bdubs, ooorrr whatever pt sk
 
 ##
 
-![image](https://github.com/user-attachments/assets/e44e6953-9840-4470-9219-215d5d95b282)
