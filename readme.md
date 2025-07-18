@@ -8,3 +8,8 @@ hallo hi heelloooo!!! im pufferfizh, or fizh, oorrr bdubs, ooorrr whatever pt sk
 - SIGN MY [ATA BOOK](https://bdoubleo.atabook.org)!!!
   
 [<img width="322" height="203" alt="image" src="https://github.com/user-attachments/assets/82861f31-67a2-441f-9699-d7f358cb8ac3" />](https://www.tumblr.com/alienssstufff)
+
+
+##
+
+![image](https://github.com/user-attachments/assets/e44e6953-9840-4470-9219-215d5d95b282)
