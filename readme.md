@@ -2,7 +2,7 @@
 
 <p align="center">
 bdoubleo/bdubs <br>
-he/they/moss + <a href="https://pronouns.cc/@pufferfizh">others</a> ! <br>
+he/they/moss + <a href="https://en.pronouns.page/@bdoubleO">others</a> ! <br>
 <br> wip dont look at me!!!!!
 
 
