@@ -1,8 +1,8 @@
 <p align="center"><img width="735" height="63" alt="image" src="https://github.com/user-attachments/assets/eb510bd2-4e98-4afb-b1d2-e37fab8549da" /></p>
 
 <p align="center">
-bdoubleo/bdubs <br>
-he/they/moss + <a href="https://en.pronouns.page/@bdoubleO">others</a> ! <br>
+bdoubleo ノ bdubs <br>
+he ノ they ノ moss + <a href="https://en.pronouns.page/@bdoubleO">others</a> ! <br>
 <br> wip dont look at me!!!!!
 
 
